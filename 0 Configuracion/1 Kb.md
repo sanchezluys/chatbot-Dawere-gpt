@@ -33,7 +33,7 @@ Nuestra modalidad de estudio basada en estándares de calidad internacionales bu
 
 - El certificado a obtener es un diploma de high school de EEUU acreditado por Cognia. Por ende, es válido en todo el mundo. Dawere International High School está registrado en el Departamento de Educación de Florida bajo el número 6139.
 - Nuestro currículo está alineado a los estándares del Departamento de Educación de Florida.
-- Los estudiantes pueden avanzar a su propio ritmo, con acceso 24/7 a videoclases, materiales de estudio y evaluaciones sumativas, evaluaciones formativas y proyectos.
+- Los estudiantes pueden avanzar a su propio ritmo, con acceso 24/7 a video clases, materiales de estudio y evaluaciones sumativas, evaluaciones formativas y proyectos.
 - La metodología combina enseñanza asincrónica (lecciones grabadas) con encuentros en síncronos (en vivo) con profesores especialistas de la materia y otros compañeros de estudio.
 - Los usuarios pueden estudiar desde cualquier lugar y en cualquier momento, lo que permite adaptar el aprendizaje a sus propias necesidades. Estudian a su ritmo y sin horario.
 - Nuestra plataforma tiene un diseño moderno y accesible, optimizado para cualquier dispositivo (computadora, tablet o móvil).
