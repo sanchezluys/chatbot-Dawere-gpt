@@ -109,27 +109,27 @@ Nuestra modalidad de estudio basada en estándares de calidad internacionales bu
   - Certificación de calificaciones sellado por la institución académica y firmado por el director o rector.
   - Dependiendo del programa académico a cursar, el estudiante deberá entregar una certificación de calificaciones específica.
 
-        | Grado a inscribir        | Documento a entregar                                                               |
-        | :----------------------- | :--------------------------------------------------------------------------------- |
-        | 7mo grado / 7th grade    | Certificado de culminación del 6to grado / 6th grade o su equivalente                |
-        | 8vo grado / 8th grade    | Certificado de calificaciones del 7mo grado o sus equivalentes                     |
-        | 9no grado / 9th grade    | Certificado de calificaciones del 8vo grado o sus equivalentes, o certificado de culminación del middle school |
-        | 10mo grado / 10th grade  | Certificado de calificaciones de 9no grado o su equivalente                        |
-        | 11er grado / 11th grade  | Certificado de calificaciones de 9no y 10mo grado o sus equivalentes                 |
-        | 12do grado / 12th grade  | Certificado de calificaciones de 9no, 10mo y 11er grado o sus equivalentes           |
+| Grado a inscribir        | Documento a entregar                                                               |
+| :----------------------- | :--------------------------------------------------------------------------------- |
+| 7mo grado / 7th grade    | Certificado de culminación del 6to grado / 6th grade o su equivalente                |
+| 8vo grado / 8th grade    | Certificado de calificaciones del 7mo grado o sus equivalentes                     |
+| 9no grado / 9th grade    | Certificado de calificaciones del 8vo grado o sus equivalentes, o certificado de culminación del middle school |
+| 10mo grado / 10th grade  | Certificado de calificaciones de 9no grado o su equivalente                        |
+| 11er grado / 11th grade  | Certificado de calificaciones de 9no y 10mo grado o sus equivalentes                 |
+| 12do grado / 12th grade  | Certificado de calificaciones de 9no, 10mo y 11er grado o sus equivalentes           |
 
   - Manual del estudiante (Acta de Compromiso Estudiantil), completada el Acta y firmada por el estudiante y representante.
   - Carnet de vacunación (Aplica para estudiantes que vivan en los EE. UU.) Requisito obligatorio, según disposición legal del Estado de Florida en EE.UU., todo aquel estudiante inscrito en el 7mo grado en cualquier escuela de este condado debe presentar las vacunas que le hayan sido suministradas, exigencia que se nos realiza para dar cumplimiento al requisito de ley "sección 1003.22 de los Estatutos de Florida y la sección 64D-3.046 del Código Administrativo de Florida".
 - En el caso de los programas de USA, cuando el estudiante no entrega su documentación, al inicio del siguiente calendario se ajustará su inscripción, reubicándolo de acuerdo a la información disponible y se le informará dejando constancia de esta acción.
 - La edad mínima para ingresar a un programa académico de acuerdo con los estatutos de Florida es:
 
-    | Programa                    | Edad                     |
-    | :-------------------------- | :----------------------- |
-    | Middle school               | 11 años - 6th grade      |
-    |                             | 12 años - 7th grade      |
-    |                             | 13 años - 8th grade      |
-    | Accelerate High school (18 créditos) | 14 años - 9th grade      |
-    | Regular High school (24 créditos)   | 14 años - 9th grade      |
+| Programa                    | Edad                     |
+| :-------------------------- | :----------------------- |
+| Middle school               | 11 años - 6th grade      |
+|                             | 12 años - 7th grade      |
+|                             | 13 años - 8th grade      |
+| Accelerate High school (18 créditos) | 14 años - 9th grade      |
+| Regular High school (24 créditos)   | 14 años - 9th grade      |
 
 - Para los estudiantes de programas en USA, Control de Estudios verificará que los datos del perfil coinciden con los de los documentos suministrados por el estudiante. Validará en el perfil que todo está en orden. En caso contrario, notificará al estudiante las discrepancias, dándole un plazo máximo de un mes para entregar la documentación faltante.
 - Control de estudios procede a elaborar las equivalencias necesarias para verificar la correcta ubicación del estudiante y si necesita agregarse o eliminarse materias para cumplir con el máximo de créditos por periodo.
