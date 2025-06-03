@@ -59,103 +59,103 @@ Nuestra modalidad de estudio basada en estándares de calidad internacionales bu
 
 ### Bachillerato Online USA
 
-**Ideal para:** Estudiantes de 12 años en adelante que tienen tiempo para dedicarle a sus estudios de middle y high school y desean una experiencia más completa. Este programa es el más riguroso y se enfoca en la calidad. Es nuestro programa más prestigioso para estudiantes que tienen planes de cursar carreras universitarias demandantes en universidades prestigiosas.
-**Beneficio:** Con un título de bachiller norteamericano de 24 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos.
-**Título a obtener:** Diploma de High School de 24 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
-**Grados cubiertos:** Los grados a cursar son 7 y 8 del middle school y 9,10, 11 y 12 del high school.
-**Duración:** La duración del programa completo es de 6 años. Sin embargo, los estudiantes pueden retomar sus estudios según el último año aprobado en otra institución. A través de sus notas certificadas, podemos saber los años cursados y les hacemos la transferencia de créditos. Cada año académico de este programa tiene una duración de 10 meses calendario.
-**Número de materias a cursar:** En este programa cursarán un total de 45 materias.
-**Reconocimiento Internacional:** Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
-**Calendarios:** Ofrecemos dos calendarios fijos al año: de febrero a noviembre y de agosto a mayo.
-**Requisitos:** Documento de identidad y notas certificadas. En caso de no poseer sus notas certificadas, puede optar por las pruebas de convalidación que sustituyen las notas certificadas faltantes. Es importante resaltar que las pruebas de convalidación sirven para la inscripción en nuestro programa, pero no generamos notas certificadas basadas en esas pruebas de convalidación. Para ingresar en años académicos avanzados, los estudiantes deben presentar las pruebas de convalidación de todos los años anteriores. Es decir, si alguien quiere entrar en 11th grade, primero debe presentar la prueba de convalidación de 9no grado y aprobar. Luego, debe presentar la prueba de convalidación de 10mo grado y aprobar. Solo después de presentar estas dos pruebas, es que se pueden inscribir en 11mo grado.
+IDEAL PARA: Estudiantes de 12 años en adelante que tienen tiempo para dedicarle a sus estudios de middle y high school y desean una experiencia más completa. Este programa es el más riguroso y se enfoca en la calidad. Es nuestro programa más prestigioso para estudiantes que tienen planes de cursar carreras universitarias demandantes en universidades prestigiosas.
+BENEFICIO: Con un título de bachiller norteamericano de 24 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos.
+TITULO A OBTENER: Diploma de High School de 24 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
+GRADOS CUBIERTOS: Los grados a cursar son 7 y 8 del middle school y 9,10, 11 y 12 del high school.
+DURACION: La duración del programa completo es de 6 años. Sin embargo, los estudiantes pueden retomar sus estudios según el último año aprobado en otra institución. A través de sus notas certificadas, podemos saber los años cursados y les hacemos la transferencia de créditos. Cada año académico de este programa tiene una duración de 10 meses calendario.
+NUMERO DE MATERIAS A CURSAR: En este programa cursarán un total de 45 materias.
+RECONOCIMIENTO INTERNACIONAL: Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
+CALENDARIOS: Ofrecemos dos calendarios fijos al año: de febrero a noviembre y de agosto a mayo.
+REQUISITOS: Documento de identidad y notas certificadas. En caso de no poseer sus notas certificadas, puede optar por las pruebas de convalidación que sustituyen las notas certificadas faltantes. Es importante resaltar que las pruebas de convalidación sirven para la inscripción en nuestro programa, pero no generamos notas certificadas basadas en esas pruebas de convalidación. Para ingresar en años académicos avanzados, los estudiantes deben presentar las pruebas de convalidación de todos los años anteriores. Es decir, si alguien quiere entrar en 11th grade, primero debe presentar la prueba de convalidación de 9no grado y aprobar. Luego, debe presentar la prueba de convalidación de 10mo grado y aprobar. Solo después de presentar estas dos pruebas, es que se pueden inscribir en 11mo grado.
 
-**Costo del programa:** Este programa tiene un costo de USD 600 por año académico por estudiante. Si realiza el pago de todo el año por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 20%, quedando el año académico en USD 480. Si decide pagar de forma fraccionada en 10 cuotas, cada cuota le quedará en USD 60. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado y otros documentos tienen un costo aparte.
-**Formas de pago:** con Tarjeta de crédito, Zelle, Paypal y efectivo en las oficinas de Dawere Caracas. Los pagos se realizan en la misma plataforma web de Dawere International High School. 
-**URL:** <https://us.dawere.com/programa/7th-12th-grade>
-**Prueba <https://us.dawere.com/programa/7th-12th-grade> de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
+COSTO DEL PROGRAMA: Este programa tiene un costo de USD 700 por año académico por estudiante. Si realiza el pago de todo el año por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 20%, quedando el año académico en USD 560. Si decide pagar de forma fraccionada en 10 cuotas, cada cuota le quedará en USD 70. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado y otros documentos tienen un costo aparte.
+FORMAS DE PAGO: con Tarjeta de crédito, Zelle, Zinli, Paypal y efectivo en las oficinas de Dawere Caracas, pagos con Binance no se acepta. Los pagos se realizan en la misma plataforma web de Dawere International High School.
+URL: <https://us.dawere.com/programa/7th-12th-grade>
+PRUEBA: <https://us.dawere.com/programa/7th-12th-grade> de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
 
 ### Bachillerato Online Acelerado USA
 
-**Ideal para:** Estudiantes de 14 años en adelante que están interesados en completar sus estudios de bachillerato de forma acelerada. Estudiantes que quieren recuperar el tiempo perdido porque reprobaron algún año académico o pasaron tiempo fuera del sistema educativo o simplemente quieren graduarse rápido, pueden beneficiarse de este programa. Este programa es una alternativa acelerada que igual permite que los estudiantes obtengan un high school diploma y continúen sus estudios universitarios, técnicos o se incorporen al mercado laboral.
-**Beneficio:** Con un título de bachiller norteamericano de 18 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Sin embargo, las universidades más prestigiosas de los EEUU prefieren ver notas certificadas de 24 créditos en sus solicitudes de admisión. Esto ya es prerrogativa de cada Universidad.
-**Título a obtener:** Diploma de High School de 18 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
-**Grados cubiertos:** Los grados a cursar son 9,10, 11 y 12 del high school.
-**Duración:** La duración del programa completo es de 3 años. Sin embargo, los estudiantes pueden retomar sus estudios según el último año aprobado en otra institución. A través de sus notas certificadas, podemos saber los años cursados y les hacemos la transferencia de crétidos. El programa está compuesto por 6 (seis) semestres: 9no-semestre I, 9no-semestre II, 10mo-semestre I, 10mo-semestre II, 11mo y 12mo.
-**Número de materias a cursar:** En este programa cursarán un total de 37 materias.
-**Reconocimiento Internacional:** Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
-**Calendarios:** Ofrecemos 4 calendarios fijos al año: de enero a junio, de julio a diciembre, de abril a septiembre y de octubre a marzo.
-**Requisitos:** Documento de identidad y notas certificadas. En caso de no poseer sus notas certificadas, puede optar por las pruebas de convalidación que sustituyen las notas certificadas faltantes. Es importante resaltar que las pruebas de convalidación sirven para la inscripción en nuestro programa, pero no generamos notas certificadas basadas en esas pruebas de convalidación. Para ingresar en años académicos avanzados, los estudiantes deben presentar las pruebas de convalidación de todos los años anteriores. Es decir, si alguien quiere entrar en 11th grade, primero debe presentar la prueba de convalidación de 9no grado y aprobar. Luego, debe presentar la prueba de convalidación de 10mo grado y aprobar. Solo después de presentar estas dos pruebas, es que se pueden inscribir en 11mo grado.
-**Costo del programa:** Este programa tiene un costo de USD 300 por semestre por estudiante. Si realiza el pago de todo el semestre por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 20%, quedando el semestre en USD 240. Si decide pagar de forma fraccionada en 5 cuotas, cada cuota le quedará en USD 60. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado y otros documentos tienen un costo aparte.
-**Formas de pago:** con Tarjeta de crédito, Zelle, Paypal y efectivo en las oficinas de Dawere Caracas. Los pagos se realizan en la misma plataforma web de Dawere International High School. 
-**URL:** <https://us.dawere.com/programa/bachillerato-virtual-acelerado-usa>
-**Prueba gratis:** Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
+IDEAL PARA: Estudiantes de 14 años en adelante que están interesados en completar sus estudios de bachillerato de forma acelerada. Estudiantes que quieren recuperar el tiempo perdido porque reprobaron algún año académico o pasaron tiempo fuera del sistema educativo o simplemente quieren graduarse rápido, pueden beneficiarse de este programa. Este programa es una alternativa acelerada que igual permite que los estudiantes obtengan un high school diploma y continúen sus estudios universitarios, técnicos o se incorporen al mercado laboral.
+BENEFICIO: Con un título de bachiller norteamericano de 18 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Sin embargo, las universidades más prestigiosas de los EEUU prefieren ver notas certificadas de 24 créditos en sus solicitudes de admisión. Esto ya es prerrogativa de cada Universidad.
+TITULO A OBTENER: Diploma de High School de 18 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
+GRADOS CUBIERTOS: Los grados a cursar son 9,10, 11 y 12 del high school.
+DURACION: La duración del programa completo es de 3 años. Sin embargo, los estudiantes pueden retomar sus estudios según el último año aprobado en otra institución. A través de sus notas certificadas, podemos saber los años cursados y les hacemos la transferencia de crétidos. El programa está compuesto por 6 (seis) semestres: 9no-semestre I, 9no-semestre II, 10mo-semestre I, 10mo-semestre II, 11mo y 12mo.
+NUMERO DE MATERIAS A CURSAR: En este programa cursarán un total de 37 materias.
+RECONOCIMIENTO INTERNACIONAL: Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
+CALENDARIOS: Ofrecemos 4 calendarios fijos al año: de enero a junio, de julio a diciembre, de abril a septiembre y de octubre a marzo.
+REQUISITOS: Documento de identidad y notas certificadas. En caso de no poseer sus notas certificadas, puede optar por las pruebas de convalidación que sustituyen las notas certificadas faltantes. Es importante resaltar que las pruebas de convalidación sirven para la inscripción en nuestro programa, pero no generamos notas certificadas basadas en esas pruebas de convalidación. Para ingresar en años académicos avanzados, los estudiantes deben presentar las pruebas de convalidación de todos los años anteriores. Es decir, si alguien quiere entrar en 11th grade, primero debe presentar la prueba de convalidación de 9no grado y aprobar. Luego, debe presentar la prueba de convalidación de 10mo grado y aprobar. Solo después de presentar estas dos pruebas, es que se pueden inscribir en 11mo grado.
+COSTO DEL PROGRAMA: Este programa tiene un costo de USD 350 por semestre por estudiante. Si realiza el pago de todo el semestre por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 20%, quedando el semestre en USD 280. Si decide pagar de forma fraccionada en 5 cuotas, cada cuota le quedará en USD 70. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado y otros documentos tienen un costo aparte.
+FORMAS DE PAGO: con Tarjeta de crédito, Zelle, Zinli, Paypal y efectivo en las oficinas de Dawere Caracas; pagos con Binance no se acepta. Los pagos se realizan en la misma plataforma web de Dawere International High School.
+URL: <https://us.dawere.com/programa/bachillerato-virtual-acelerado-usa>
+PRUEBA GRATIS: Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
 
 ### Bachillerato Online Adultos USA
 
-**Ideal para:** Estudiantes de 16 años en adelante que buscan una opción o alternativa al colegio tradicional porque desean culminar sus estudios de una manera flexible y expedita, sin afectar sus actividades laborales o extracurriculares. La mayoría de las personas que buscan este programa ya están trabajando. Este programa es una alternativa acelerada que igual permite que los estudiantes obtengan un high school diploma y continúen sus estudios universitarios, técnicos o se incorporen al mercado laboral. A través de este programa, las personas pueden culminar sus estudios de bachillerato sin restricciones de calendarios académicos, cursan las materias a su propio ritmo y al aprobar todas las materias, reciben su high school diploma. No existe un tiempo mínimo para graduarse, en promedio, los estudiantes de este programa logran culminar las materias que les faltan para graduarse en 6 meses.
-**Beneficio:** Con un título de bachiller norteamericano de 18 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Sin embargo, las universidades más prestigiosas de los EEUU prefieren ver notas certificadas de 24 créditos en sus solicitudes de admisión. Esto ya es prerrogativa de cada Universidad. Se recomienda que los estudiantes investiguen con las autoridades educativas de su país si este programa será aceptado y recibirá la homologación que se espera para continuar estudios superiores en su país.
-**Título a obtener:** Diploma de High School de 18 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
-**Grados cubiertos:** Los grados a cursar son 9,10, 11 y 12 del high school.
-**Duración:** No hay un tiempo estipulado para culminar cada una de las materias, el estudiante va a su propio ritmo. Tan pronto como apruebe todas las materias del programa, recibirá el diploma de high school.  
-**Número de materias a cursar:** En este programa cursarán un total de 21 materias.
-**Reconocimiento Internacional:** Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
-**Calendarios:** No existe la figura de los calendarios. Las inscripciones están activas durante todo el año. Los estudiantes se inscriben en cualquier momento del año y se gradúan en lo que terminen sus materias.
-**Requisitos:** Documento de identidad y notas certificadas. En caso de no poseer sus notas certificadas, puede optar por las pruebas de convalidación que sustituyen las notas certificadas faltantes. Es importante resaltar que las pruebas de convalidación sirven para la inscripción en nuestro programa, pero no generamos notas certificadas basadas en esas pruebas de convalidación. Para ingresar en años académicos avanzados, los estudiantes deben presentar las pruebas de convalidación de todos los años anteriores. Es decir, si alguien quiere entrar en 11th grade, primero debe presentar la prueba de convalidación de 9no grado y aprobar. Luego, debe presentar la prueba de convalidación de 10mo grado y aprobar. Solo después de presentar estas dos pruebas, es que se pueden inscribir en 11mo grado.
-**Costo del programa:** Este programa tiene un costo de USD 1500 todo el bachillerato completo. Si realiza el pago de todo el programa por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 20%, quedando el programa en USD 1200. Si decide pagar de forma fraccionada en 20 cuotas mensuales, cada cuota le quedará en USD 75. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado, envíos, apostillas y otros documentos tienen un costo aparte.
-**Formas de pago:** con Tarjeta de crédito, Zelle, Paypal y efectivo en las oficinas de Dawere Caracas. Los pagos se realizan en la misma plataforma web de Dawere International High School. 
-**URL:** <https://us.dawere.com/programa/bachillerato-virtual-adultos-usa>
+IDEAL PARA: Estudiantes de 16 años en adelante que buscan una opción o alternativa al colegio tradicional porque desean culminar sus estudios de una manera flexible y expedita, sin afectar sus actividades laborales o extracurriculares. La mayoría de las personas que buscan este programa ya están trabajando. Este programa es una alternativa acelerada que igual permite que los estudiantes obtengan un high school diploma y continúen sus estudios universitarios, técnicos o se incorporen al mercado laboral. A través de este programa, las personas pueden culminar sus estudios de bachillerato sin restricciones de calendarios académicos, cursan las materias a su propio ritmo y al aprobar todas las materias, reciben su high school diploma. No existe un tiempo mínimo para graduarse, en promedio, los estudiantes de este programa logran culminar las materias que les faltan para graduarse en 6 meses.
+BENEFICIO: Con un título de bachiller norteamericano de 18 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Sin embargo, las universidades más prestigiosas de los EEUU prefieren ver notas certificadas de 24 créditos en sus solicitudes de admisión. Esto ya es prerrogativa de cada Universidad. Se recomienda que los estudiantes investiguen con las autoridades educativas de su país si este programa será aceptado y recibirá la homologación que se espera para continuar estudios superiores en su país.
+TITULO A OBTENER: Diploma de High School de 18 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
+GRADOS CUBIERTOS: Los grados a cursar son 9,10, 11 y 12 del high school.
+DURACION: No hay un tiempo estipulado para culminar cada una de las materias, el estudiante va a su propio ritmo. Tan pronto como apruebe todas las materias del programa, recibirá el diploma de high school.  
+NUMERO DE MATERIAS A CURSAR: En este programa cursarán un total de 21 materias.
+RECONOCIMIENTO INTERNACIONAL: Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
+CALENDARIOS: No existe la figura de los calendarios. Las inscripciones están activas durante todo el año. Los estudiantes se inscriben en cualquier momento del año y se gradúan en lo que terminen sus materias.
+REQUISITOS: Documento de identidad y notas certificadas. En caso de no poseer sus notas certificadas, puede optar por las pruebas de convalidación que sustituyen las notas certificadas faltantes. Es importante resaltar que las pruebas de convalidación sirven para la inscripción en nuestro programa, pero no generamos notas certificadas basadas en esas pruebas de convalidación. Para ingresar en años académicos avanzados, los estudiantes deben presentar las pruebas de convalidación de todos los años anteriores. Es decir, si alguien quiere entrar en 11th grade, primero debe presentar la prueba de convalidación de 9no grado y aprobar. Luego, debe presentar la prueba de convalidación de 10mo grado y aprobar. Solo después de presentar estas dos pruebas, es que se pueden inscribir en 11mo grado.
+COSTO DEL PROGRAMA: Este programa tiene un costo de USD 1500 todo el bachillerato completo. Si realiza el pago de todo el programa por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 20%, quedando el programa en USD 1200. Si decide pagar de forma fraccionada en 20 cuotas mensuales, cada cuota le quedará en USD 75. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado, envíos, apostillas y otros documentos tienen un costo aparte.
+FORMAS DE PAGO: con Tarjeta de crédito, Zelle, Zinli, Paypal y efectivo en las oficinas de Dawere Caracas; pagos con Binance no se acepta. Los pagos se realizan en la misma plataforma web de Dawere International High School.
+URL: <https://us.dawere.com/programa/bachillerato-virtual-adultos-usa>
 
-**Prueba gratis:** Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
+PRUEBA GRATIS: Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
 
 ### Doble Titulación Bachillerato USA
 
-**Ideal para:** Estudiantes que están actualmente inscritos en un colegio tradicional presencial o que ya se graduaron en su país y desean obtener un diploma de high school de los EEUU. Estos estudiantes no hablan inglés y prefieren cursar este programa en español.
-**Beneficio:** Con un título de bachiller norteamericano de 24 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Los estudiantes que se inscriben en este programa aprenden o practican a tomar cursos virtuales que será una habilidad fundamental en su carrera universitaria y profesional.
-**Título a obtener:** Diploma de High School de 24 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
-**Grados cubiertos:** Los grados a cursar son 9,10, 11 y 12 del high school. Es importante resaltar que este programa está compuesto por solo 7 materias que en el currículum de Florida están distribuidas entre los años académicos mencionados.
-**Duración:** No hay un tiempo estipulado para culminar cada una de las materias, el estudiante va a su propio ritmo. Tan pronto como apruebe todas las materias del programa y entregue las notas certificadas de su graduación de su colegio local, recibirá el diploma de high school.  
-**Número de materias a cursar:** En este programa cursarán un total de 7 materias en español: Inglés I, Actuación, Historia de los Estados Unidos de América, Inglés II, Gobierno de los Estados Unidos, Ciencias de la Computación, Economía y Finanzas Personales.
-**Reconocimiento Internacional:** Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
+IDEAL PARA: Estudiantes que están actualmente inscritos en un colegio tradicional presencial o que ya se graduaron en su país y desean obtener un diploma de high school de los EEUU. Estos estudiantes no hablan inglés y prefieren cursar este programa en español.
+BENEFICIO: Con un título de bachiller norteamericano de 24 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Los estudiantes que se inscriben en este programa aprenden o practican a tomar cursos virtuales que será una habilidad fundamental en su carrera universitaria y profesional.
+TITULO A OBTENER: Diploma de High School de 24 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
+GRADOS CUBIERTOS: Los grados a cursar son 9,10, 11 y 12 del high school. Es importante resaltar que este programa está compuesto por solo 7 materias que en el currículum de Florida están distribuidas entre los años académicos mencionados.
+DURACION: No hay un tiempo estipulado para culminar cada una de las materias, el estudiante va a su propio ritmo. Tan pronto como apruebe todas las materias del programa y entregue las notas certificadas de su graduación de su colegio local, recibirá el diploma de high school.  
+NUMERO DE MATERIAS A CURSAR: En este programa cursarán un total de 7 materias en español: Inglés I, Actuación, Historia de los Estados Unidos de América, Inglés II, Gobierno de los Estados Unidos, Ciencias de la Computación, Economía y Finanzas Personales.
+RECONOCIMIENTO INTERNACIONAL: Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
 
-**Calendarios:** No existe la figura de los calendarios. Las inscripciones están activas durante todo el año. Los estudiantes se inscriben en cualquier momento del año y pueden terminar las 7 materias en cualquier momento. No hay restricciones de tiempo para terminar las 7 materias del programa. Lo puedes hacer tan lento o tan rápido como quieras.
+CALENDARIOS: No existe la figura de los calendarios. Las inscripciones están activas durante todo el año. Los estudiantes se inscriben en cualquier momento del año y pueden terminar las 7 materias en cualquier momento. No hay restricciones de tiempo para terminar las 7 materias del programa. Lo puedes hacer tan lento o tan rápido como quieras.
 
-**Requisitos:** Documento de identidad y notas certificadas cuando te gradúes de tu colegio en tu país. En Dawere International High School hacemos la transferencia de los créditos que cursaste en tu colegio en tu país a nuestro colegio en Boca Ratón Florida USA. Esos créditos, más los créditos de las 7 materias que cursaste virtualmente con nosotros, nos permiten emitir un high school diploma de los EEUU a tu nombre.
+REQUISITOS: Documento de identidad y notas certificadas cuando te gradúes de tu colegio en tu país. En Dawere International High School hacemos la transferencia de los créditos que cursaste en tu colegio en tu país a nuestro colegio en Boca Ratón Florida USA. Esos créditos, más los créditos de las 7 materias que cursaste virtualmente con nosotros, nos permiten emitir un high school diploma de los EEUU a tu nombre.
 
-**Costo del programa:** Este programa tiene un costo de USD 1100 por las 7 materias completas. Si realiza el pago de todo el programa por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 10%, quedando el programa en USD 990. Si decide pagar de forma fraccionada en 20 cuotas mensuales, cada cuota le quedará en USD 55. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado, envíos, apostillas y otros documentos tienen un costo aparte.
+COSTO DEL PROGRAMA: Este programa tiene un costo de USD 1100 por las 7 materias completas. Si realiza el pago de todo el programa por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 10%, quedando el programa en USD 990. Si decide pagar de forma fraccionada en 20 cuotas mensuales, cada cuota le quedará en USD 55. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado, envíos, apostillas y otros documentos tienen un costo aparte.
 
-**Formas de pago:** con Tarjeta de crédito, Zelle, Paypal y efectivo en las oficinas de Dawere Caracas. Los pagos se realizan en la misma plataforma web de Dawere International High School. 
+FORMAS DE PAGO: con Tarjeta de crédito, Zelle, Zinli, Paypal y efectivo en las oficinas de Dawere Caracas; pagos con Binance no se acepta. Los pagos se realizan en la misma plataforma web de Dawere International High School.
 
-**URL:** <https://us.dawere.com/programa/doble-titulacion-usa-espanol>
+URL: <https://us.dawere.com/programa/doble-titulacion-usa-espanol>
 
-**Prueba gratis:** Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
+PRUEBA GRATIS: Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
 
 ### US Dual High School Diploma
 
-**Ideal para:** Estudiantes que están actualmente inscritos en un colegio tradicional presencial o que ya se graduaron en su país y desean obtener un diploma de high school de los EEUU. Estos estudiantes quieren practicar y expandir su inglés cursando este programa cuyo contenido, instrucción y evaluación es completamente en inglés.
+IDEAL PARA: Estudiantes que están actualmente inscritos en un colegio tradicional presencial o que ya se graduaron en su país y desean obtener un diploma de high school de los EEUU. Estos estudiantes quieren practicar y expandir su inglés cursando este programa cuyo contenido, instrucción y evaluación es completamente en inglés.
 
-**Beneficio:** Con un título de bachiller norteamericano de 24 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Los estudiantes que se inscriben en este programa aprenden o practican a tomar cursos virtuales que será una habilidad fundamental en su carrera universitaria y profesional. Adicionalmente, los estudiantes estarán más expuestos al inglés dado que todas las videoclases, lecturas, proyectos, evaluaciones y encuentros con profesores serán en inglés. Esto los preparará para un mundo global donde el inglés abre muchas oportunidades laborales.
+BENEFICIO: Con un título de bachiller norteamericano de 24 créditos de un colegio acreditado como Dawere International High School puedes optar por estudiar en cualquier universidad dentro y fuera de los Estados Unidos. Los estudiantes que se inscriben en este programa aprenden o practican a tomar cursos virtuales que será una habilidad fundamental en su carrera universitaria y profesional. Adicionalmente, los estudiantes estarán más expuestos al inglés dado que todas las videoclases, lecturas, proyectos, evaluaciones y encuentros con profesores serán en inglés. Esto los preparará para un mundo global donde el inglés abre muchas oportunidades laborales.
 
-**Título a obtener:** Diploma de High School de 24 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
+TITULO A OBTENER: Diploma de High School de 24 créditos avalado por el Departamento de Educación de Florida y acreditado por COGNIA.
 
-**Grados cubiertos:** Los grados a cursar son 9,10, 11 y 12 del high school. Es importante resaltar que este programa está compuesto por solo 7 materias que en el currículum de Florida están distribuidas entre los años académicos mencionados. Todas las materias serán dictadas en inglés.
+GRADOS CUBIERTOS: Los grados a cursar son 9,10, 11 y 12 del high school. Es importante resaltar que este programa está compuesto por solo 7 materias que en el currículum de Florida están distribuidas entre los años académicos mencionados. Todas las materias serán dictadas en inglés.
 
-**Duración:** No hay un tiempo estipulado para culminar cada una de las materias, el estudiante va a su propio ritmo. Tan pronto como apruebe todas las materias del programa y entregue las notas certificadas de su graduación de su colegio local, recibirá el high school diploma.  
+DURACION: No hay un tiempo estipulado para culminar cada una de las materias, el estudiante va a su propio ritmo. Tan pronto como apruebe todas las materias del programa y entregue las notas certificadas de su graduación de su colegio local, recibirá el high school diploma.  
 
-**Número de materias a cursar:** En este programa cursarán un total de 7 materias en inglés: English I, Introduction to Drama, United States History, English II, United States Government, Computer Science Principles, Economics and Personal Finance.
+NUMERO DE MATERIAS A CURSAR: En este programa cursarán un total de 7 materias en inglés: English I, Introduction to Drama, United States History, English II, United States Government, Computer Science Principles, Economics and Personal Finance.
 
-**Reconocimiento Internacional:** Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
+RECONOCIMIENTO INTERNACIONAL: Con reconocimiento internacional. Ofrecemos el servicio de legalizar y apostillar el diploma y las notas certificadas. Luego, se lo enviamos a los graduandos hasta la puerta de su casa.
 
-**Calendarios:** No existe la figura de los calendarios. Las inscripciones están activas durante todo el año. Los estudiantes se inscriben en cualquier momento del año y pueden terminar las 7 materias en cualquier momento. No hay restricciones de tiempo para terminar las 7 materias del programa. Lo puedes hacer tan lento o tan rápido como quieras.
+CALENDARIOS: No existe la figura de los calendarios. Las inscripciones están activas durante todo el año. Los estudiantes se inscriben en cualquier momento del año y pueden terminar las 7 materias en cualquier momento. No hay restricciones de tiempo para terminar las 7 materias del programa. Lo puedes hacer tan lento o tan rápido como quieras.
 
-**Requisitos:** Documento de identidad y notas certificadas cuando te gradúes de tu colegio en tu país. En Dawere International High School hacemos la transferencia de los créditos que cursaste en tu colegio en tu país a nuestro colegio en Boca Ratón Florida USA. Esos créditos, más los créditos de las 7 materias que cursaste virtualmente con nosotros, nos permiten emitir un high school diploma de los EEUU a tu nombre.
+REQUISITOS: Documento de identidad y notas certificadas cuando te gradúes de tu colegio en tu país. En Dawere International High School hacemos la transferencia de los créditos que cursaste en tu colegio en tu país a nuestro colegio en Boca Ratón Florida USA. Esos créditos, más los créditos de las 7 materias que cursaste virtualmente con nosotros, nos permiten emitir un high school diploma de los EEUU a tu nombre.
 
-**Costo del programa:** Este programa tiene un costo de USD 1100 por las 7 materias completas. Si realiza el pago de todo el programa por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 10%, quedando el programa en USD 990. Si decide pagar de forma fraccionada en 20 cuotas mensuales, cada cuota le quedará en USD 55. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado, envíos, apostillas y otros documentos tienen un costo aparte.
+COSTO DEL PROGRAMA: Este programa tiene un costo de USD 1100 por las 7 materias completas. Si realiza el pago de todo el programa por adelantado, lo que llamamos “pago completo”, tendrá un descuento del 10%, quedando el programa en USD 990. Si decide pagar de forma fraccionada en 20 cuotas mensuales, cada cuota le quedará en USD 55. La plataforma le indicará las fechas exactas en las que se vence cada cuota y contará con una vista para entrar a pagar sus cuotas cuando lo desees. Fíjate que no hay costo de inscripción, carnets, materiales, ni nada por el estilo. Con pagar la primera cuota, ya el estudiante queda inscrito en el programa. Las notas certificadas, paquetes de grado, envíos, apostillas y otros documentos tienen un costo aparte.
 
-**Formas de pago:** con Tarjeta de crédito, Zelle, Paypal y efectivo en las oficinas de Dawere Caracas. Los pagos se realizan en la misma plataforma web de Dawere International High School. 
+FORMAS DE PAGO: con Tarjeta de crédito, Zelle, Zinli, Paypal y efectivo en las oficinas de Dawere Caracas; pagos con Binance no se acepta. Los pagos se realizan en la misma plataforma web de Dawere International High School.
 
-**URL:** <https://us.dawere.com/programa/us-dual-high-school>
+URL: <https://us.dawere.com/programa/us-dual-high-school>
 
-**Prueba gratis:** Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
+PRUEBA GRATIS: Este programa cuenta con un periodo de prueba gratis de 7 días para que aquellas personas que estén considerando inscribirse puedan probar la experiencia de los estudiantes, ver nuestro contenido educativo y corroborar la calidad de nuestra formación antes de hacer el primer pago.
 
 ## NOTAS (sobre calendarios e inscripciones)
 
@@ -449,18 +449,18 @@ Dawere International High School cuenta con un programa de Middle School (7th y 
 
 ## PREGUNTAS FRECUENTES QUE NOS HACEN LOS PROSPECTOS
 
-**1.- ¿Cuáles son los costos?**
+1.- ¿Cuáles son los costos?
 Dependiendo del programa educativo a cursar. Aquí dejo un pequeño resumen de los costos con descuento por pago completo:
 
-- Bachillerato Online Acelerado USA: Pago único USD 240 (o 5 cuotas de USD 60).
-- Bachillerato Online USA: Pago único USD 480 (o 10 cuotas de USD 60).
+- Bachillerato Online Acelerado USA: Pago único USD 280 (o 5 cuotas de USD 70).
+- Bachillerato Online USA: Pago único USD 560 (o 10 cuotas de USD 70).
 - Bachillerato Online Adultos USA: Pago único USD 1200 (o 20 cuotas mensuales de USD 75).
 - Doble Titulación Bachillerato USA: Pago único USD 990 (o 20 cuotas mensuales de USD 55).
 - US Dual High School Diploma: Pago único USD 990 (o 20 cuotas mensuales de USD 55).
 - Pruebas de convalidación: USD 100.
 *Nota: Los detalles completos de costos, incluyendo el precio sin descuento y el número exacto de cuotas, se encuentran en la descripción de cada programa en la sección "Programas educativos de Dawere International High School" de este documento.*
 
-**2.- ¿En qué tiempo me gradúo?**
+2.- ¿En qué tiempo me gradúo?
 La duración varía dependiendo del programa en el que te quieras inscribir:
 
 - Bachillerato Online USA (desde 7mo grado): 6 años (o menos si ya tienes años aprobados).
@@ -469,25 +469,27 @@ La duración varía dependiendo del programa en el que te quieras inscribir:
 - Doble Titulación y US Dual High School Diploma: Terminas las 7 materias a tu propio ritmo.
 *Para ubicarte en el grado correspondiente y estimar mejor el tiempo, necesitamos saber tu último año aprobado.*
 
-**3.- Ahora, no posee las notas certificadas, ¿En qué tiempo debo entregarlas?**
+3.- Ahora, no posee las notas certificadas, ¿En qué tiempo debo entregarlas?
 Dentro del primer mes después de tu inscripción.
 
-**4.- ¿Este título es válido para mi país?**
+4.- ¿Este título es válido para mi país?
 Sí, nuestro diploma de High School de EEUU tiene reconocimiento internacional en los países adscritos al convenio de la Haya (actualmente más de 120). Ofrecemos el servicio de legalización y apostilla.
 
-**5.- Formas de pago:**
-Paypal, Zelle, Tarjeta de débito o crédito, o efectivo en las oficinas de Dawere en Caracas (previa cita).
+5.- FORMAS DE PAGO:
 
-**6.- ¿Aceptan Bolívares?**
+- Paypal, Zelle, Tarjeta de débito o crédito, Zinli, o efectivo en las oficinas de Dawere en Caracas (previa cita).
+- Pagos con Binance no se acepta.
+
+6.- ¿Aceptan Bolívares?
 No, todos los pagos se procesan en USD.
 
-**7.- ¿Me hacen llegar el título hasta mi casa?**
+7.- ¿Me hacen llegar el título hasta mi casa?
 Sí, una vez graduado y completados los trámites, enviamos el título y notas certificadas a la dirección que nos indiques.
 
-**8.- ¿Cómo hago si necesito comunicarme con un profesor?**
+8.- ¿Cómo hago si necesito comunicarme con un profesor?
 Puedes agendar una cita con el profesor de la materia a través del botón de “Agendar cita” que verás en el aula virtual de cada materia. En esta cita, conversarás 1:1 con tu profesor para obtener una experiencia educativa personalizada. Además, hay encuentros síncronos grupales cada 15 días.
 
-**9.- ¿Cómo funciona Dawere?**
+9.- ¿Cómo funciona Dawere?
 Somos una plataforma 100% online. Con tu usuario y contraseña puedes conectarte a cualquier hora. Contarás con:
 
 - Videoclases pregrabadas disponibles 24/7.
@@ -497,35 +499,35 @@ Somos una plataforma 100% online. Con tu usuario y contraseña puedes conectarte
 - Evaluaciones formativas (de práctica, sin nota acumulativa, repetibles).
 - Evaluaciones sumativas (con calificación, dos oportunidades, y opción de recuperación).
 
-**10.- ¿Cómo son las evaluaciones?**
+10.- ¿Cómo son las evaluaciones?
 Son tipo PISA, evaluando competencias y conocimientos aplicados a la vida real, con preguntas de selección simple, múltiple, completación y tipo tabla, presentadas con un tiempo límite. También hay evaluaciones tipo proyecto con co-evaluación entre compañeros.
 
-**11.- ¿Entregan el título en físico o es online?**
+11.- ¿Entregan el título en físico o es online?
 El estudiante recibe un título en físico junto con sus notas certificadas.
 
-**12.- No puedo conseguir las notas certificadas, ¿Me pueden ayudar?**
+12.- No puedo conseguir las notas certificadas, ¿Me pueden ayudar?
 Sí, puedes presentar nuestras pruebas de convalidación para los años de high school que necesites para inscribirte. Es importante saber que estas pruebas son para la inscripción en nuestro programa y no generamos notas certificadas basadas en ellas. La política específica y si se requiere una prueba por cada año anterior está detallada en la sección "Requisitos" de cada programa en este documento, y de forma más general en la sección "2.1.2 Convalidaciones (Políticas Generales)".
 
-**13.- ¿Cómo es el examen de convalidación?**
+13.- ¿Cómo es el examen de convalidación?
 A partir del 7mo grado, se divide en: Habilidad verbal, Habilidad numérica, Habilidad científica e Inglés. Para primaria, solo habilidad verbal y numérica. Se proporciona material de estudio (excepto para primaria, que es básico). Cada prueba tiene 20 preguntas (10 puntos c/u, total 200 puntos), se aprueba con 100 puntos y tienes 2 oportunidades. (Ver también "2.1.2 Convalidaciones (Políticas Generales)").
 
-**14.- ¿En qué tiempo debo presentar el examen de convalidación?**
+14.- ¿En qué tiempo debo presentar el examen de convalidación?
 Una vez adquirido, dispones de 30 días continuos para presentarlo. (Ver también "2.1.2 Convalidaciones (Políticas Generales)").
 
-**15.- ¿Cuántas horas al día debo dedicarle a mis estudios?**
+15.- ¿Cuántas horas al día debo dedicarle a mis estudios?
 Recomendamos 2 horas al día. La plataforma te ayuda a programar tu tiempo según los días que elijas para estudiar.
 
-**16.- ¿Puedo empezar a estudiar desde donde dejé los estudios?**
+16.- ¿Puedo empezar a estudiar desde donde dejé los estudios?
 Sí, con tus notas certificadas validamos a qué periodo correspondes. Sin notas, puedes optar por el examen de convalidación. La política específica sobre cómo se maneja la convalidación para ingresar a años avanzados está en la sección "Requisitos" de cada programa y en "2.1.2 Convalidaciones (Políticas Generales)".
 
-**17.- ¿Cómo es el horario? ¿Las clases son en vivo?**
+17.- ¿Cómo es el horario? ¿Las clases son en vivo?
 No hay horarios fijos. Estudias a tu ritmo. Las videoclases son pregrabadas y disponibles 24/7. Hay encuentros síncronos grupales opcionales cada 15 días y puedes agendar citas 1:1 con profesores.
 
-**18.- ¿Hasta cuándo hay chance de inscribirse?**
+18.- ¿Hasta cuándo hay chance de inscribirse?
 Mientras las inscripciones de los periodos académicos estén abiertas, puedes inscribirte incluso si el periodo ya comenzó, hasta antes de que inicien las evaluaciones. Consulta la sección "Calendarios" de cada programa y las "NOTAS" (al final de la sección de programas) para más detalles.
 
-**19.- ¿Cómo puedo solicitar mis notas certificadas o cualquier otro documento?**
+19.- ¿Cómo puedo solicitar mis notas certificadas o cualquier otro documento?
 Si ya eres o fuiste estudiante de Dawere, en el “Panel de estudiante” hay una pestaña titulada “Trámites”. Desde esta pestaña puedes solicitar todos los documentos que necesites. Si no consigues el trámite que quieres o necesitas más ayuda, debes ir a la sección de ayuda y crear un ticket.
 
-**20.- Tengo un problema con un pago ¿Qué puedo hacer?**
+20.- Tengo un problema con un pago ¿Qué puedo hacer?
 Comunícate con nuestro Departamento de Administración creando un ticket a través de la sección de “Ayuda” en nuestra plataforma. Ante cualquier problema administrativo recomendamos la creación de un ticket a través de la sección de “Ayuda”.
